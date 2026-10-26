@@ -2,7 +2,7 @@
 
 # 🛡️ WestShield
 
- Сайт](https://westshield.pw/)
+ [Сайт](https://westshield.pw/)
 
 </div>
 
